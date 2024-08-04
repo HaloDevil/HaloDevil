@@ -1,8 +1,7 @@
-- 👋 Hi, I’m @HaloDevil ! But you can just call me Halo <3
-- 👀 I’m interested in reading/rping/coding/writing and a plethera of ther stuff !
-- 🌱 I’m currently learning psychology 
-- 💞️ My personality type is ENFP-T! I'm a campaigner!
-- 📫 You can reach on instagram (neirkov) / Twitter (neirkh)!
+- beel・cherub ♱ 20 (04) ✦ I code as a pastime.
+・・⬥・・mainly use my GH for masterlisting.
+- psych nerd ✦✦✦ too little time with too much to do.
+
 
 <!---
 HaloDevil/HaloDevil is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
