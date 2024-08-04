@@ -1,5 +1,5 @@
 - beel・cherub ♱ 20 (04) ✦ I code as a pastime.
-・・⬥・・mainly use my GH for masterlisting.
+- ・・⬥・・mainly use my GH for masterlisting.
 - psych nerd ✦✦✦ too little time with too much to do.
 
 
